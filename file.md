@@ -1,1 +1,1 @@
-Doing 
+Doing a
